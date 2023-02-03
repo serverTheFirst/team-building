@@ -1,0 +1,1 @@
+rent the whole building
